@@ -6,8 +6,6 @@ Kalau Mau Yang Hasilnya Bagus Beli Lah Yang Premium PAOK😍
 
 # PAKE DOANG NGGA FOLLOW,KONTOL LOH
 
-![deskripsi gambar](https://i.ibb.co/qJFkjY2/Screenshot-2022-03-25-10-11-45-331-com-termux.png)
-
 # Bahan-bahan
 Download apk termuxnya disini biar ngga eror,Kek otak lo
 
