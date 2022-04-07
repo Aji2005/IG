@@ -1,6 +1,6 @@
-## Warning
- Kalau Hasilnya Jelek Jangan Salahkan Saya 
+## Warning 
 👾 Mahesa Aji 👾
+ Kalau Hasilnya Jelek Jangan Salahkan Saya 
 Namannya Juga Script Free🤣🤣!!
 Kalau Mau Yang Hasilnya Bagus Beli Lah Yang Premium PAOK😍
 
